@@ -9,3 +9,17 @@ ki hobe jani na
 asa kori vala kisu oibo
 abar change korte bolse ei jonno pera nia
 abar change korlam
+
+
+tgrtrfre
+
+f
+greeft
+rt
+e
+r
+te
+t
+r
+
+
