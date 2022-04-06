@@ -6,6 +6,9 @@ This repository is built step by step in the tutorial.
 
 choliteche circus
 ki hobe jani na
+change gula bujha jai na
+birokto lagtese
 asa kori vala kisu oibo
 abar change korte bolse ei jonno pera nia
 abar change korlam
+
